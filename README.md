@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Youtube
 - 🤔 I’m looking for help with Grow my youtube channel
 - 💬 Ask me about Flutter or Internet Marketing related stuff
-- 📫 How to reach me: Facebook -@ChistyDha
+- 📫 How to reach me: [Facebook -@ChistyDha]
 - 😄 Pronouns: He/She
 - ⚡ Fun fact: Everyday getup from bed with many planes but do a little
 -->
