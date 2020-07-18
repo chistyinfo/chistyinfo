@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on Youtube
 - 🤔 I’m looking for help with developing soft skills
 - 💬 Ask me about Flutter or Internet Marketing related stuff
-- 📫 How to reach me: [Facebook - @ChistyDha](https://www.facebook.com/ChistyDha/), [Youtube - @chisty's show](https://bit.ly/3ahS8lC)
+- 📫 How to reach me: [Facebook - @ChistyDha](https://www.facebook.com/ChistyDha/), [Youtube - @chisty's show](https://bit.ly/2YPlUMk)
 - 😄 Pronouns: He/She
 - ⚡ Fun fact: Everyday getup from bed with many planes but do a little
 -->
